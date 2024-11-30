@@ -7,5 +7,4 @@ I like low level programming, like Assembly, C and even C++, even though I don't
 I am looking forward to any opportunity that is offered to me.
 You can email me at geopapougr@gmail.com and ask me anything.
 <br></br>
-In person, even though I am short and appear small, don't underestimate me :P
 
